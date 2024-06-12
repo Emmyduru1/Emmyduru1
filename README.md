@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI and digital marketing
 - 🌱 I’m currently learning data analysis and science
 - 💞️ I’m looking to collaborate on Digital marketing, AI, and data analysis
-- 📫 How to reach me https://www.linkedin.com/in/emmanuel-duru
+- 📫 How to reach me [LinkedIn](https://www.linkedin.com/in/emmanuel-duru)
 - 😄 Pronouns: He
 - ⚡ Fun fact: "Doing hard things is a good mental exercise"
 
